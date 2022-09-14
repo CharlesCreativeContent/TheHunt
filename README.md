@@ -5,7 +5,7 @@
 
 <img src="https://github.com/CharlesCreativeContent/CharlesCreativeContent/blob/main/images/THE%20HUNT%20(1).png?raw=true" width="100%">
 
-### The first goal is $4,000 per month, to pay Black Women, Indigenous, and/or People of Color to keep the space open 365 days of the year!
+### The first goal is $4,000 per month, to pay Black Women, Indigenous, and People of Color to keep the space open 365 days of the year!
 
 <img src="https://github.com/CharlesCreativeContent/CharlesCreativeContent/blob/main/images/THE%20HUNT%20(2).png?raw=true" width="100%">
 
